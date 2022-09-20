@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ajayrajput09
 - 👀 I’m interested in you
 - 🌱 I’m currently learning BA
-- 💞️ I’m looking to collaborate on phalodi
+- 💞️ I’m looking to collaborate on love city 
 - 📫 How to reach me you
 
 <!---
